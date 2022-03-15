@@ -1,1 +1,1 @@
-![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
+![Software Developer](https://fiverr-res.cloudinary.com/images/q_auto,f_auto/gigs/168010524/original/33f7f127c3b24ebdf350ccea5dbc2cfb3d3c9a4a/custom-full-stack-web-developer-front-end-back-end-website-development.png)
